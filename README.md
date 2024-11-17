@@ -1,1 +1,1 @@
-# Mountain-Hut---Trails
+# Mountain-Hut-Trails
